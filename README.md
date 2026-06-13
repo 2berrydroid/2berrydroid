@@ -1,5 +1,6 @@
 ## lelele
-<img width="736" height="506" alt="image" src="https://github.com/user-attachments/assets/d951e7e9-a99c-44e0-837d-4b15de88cf3d" />
+<img width="507" height="414" alt="image" src="https://github.com/user-attachments/assets/4a534aef-7f72-403c-816b-dda5d670e04f" />
+
 <br>
 solarbals pls 🥺
 <br>
