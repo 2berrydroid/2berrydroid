@@ -1,10 +1,19 @@
 ## lelele
-<br> 
 <div align="center"> 
-placeholder
+ <img width="2048" height="122" alt="image" src="https://github.com/user-attachments/assets/dddb1b05-ea3a-4775-9255-4f0245b70ecb" /> 
  <br>
-placeholder
+space
+ <br>
+<img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/fdf3a4e5-818f-4d41-a1e5-2687420c5643" />
+ <br>
+ int if you like hypertana
+ <br>
+c+h friendly dont be shy ok
+ <br>
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/0ebfeaa2-5807-419b-9e84-b439f0dc9f58" /> <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/95e445ee-2afe-44e2-aa24-d49ccf6f7fdb" />
+ <br>
+vballs
   <br>
 placeholder
-<img width="1000" height="300" alt="image" src="https://github.com/user-attachments/assets/bda73c2d-871b-44f4-b071-b062205c3a1e" />
 <br>
+<img width="492" height="106" alt="image" src="https://github.com/user-attachments/assets/ec9b40a0-14d0-4d3f-bc2e-7ef6ea4cc98f" />
