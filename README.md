@@ -16,6 +16,7 @@ im either drawing or playing phighting so always w2i
   <br>
 basic dni criteria ❤️
 <br>
+ <img width="98" height="55" alt="image" src="https://github.com/user-attachments/assets/80c759cc-754f-41bd-9d4d-33b0866001dc" />
 <br>
 <img width="492" height="106" alt="image" src="https://github.com/user-attachments/assets/ec9b40a0-14d0-4d3f-bc2e-7ef6ea4cc98f" />
 <br> 🐈‍⬛
