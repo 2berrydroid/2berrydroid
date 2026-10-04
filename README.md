@@ -2,7 +2,7 @@
 <div align="center"> 
  <img width="2048" height="122" alt="image" src="https://github.com/user-attachments/assets/dddb1b05-ea3a-4775-9255-4f0245b70ecb" /> 
  <br>
-space
+🐈‍⬛
  <br>
 <img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/fdf3a4e5-818f-4d41-a1e5-2687420c5643" />
  <br>
@@ -14,7 +14,10 @@ c+h friendly dont be shy ok
  <br>
 im either drawing or playing phighting
   <br>
-placeholder
+basic dni criteria ❤️
+<br>
 <br>
 <img width="492" height="106" alt="image" src="https://github.com/user-attachments/assets/ec9b40a0-14d0-4d3f-bc2e-7ef6ea4cc98f" />
+<br> 🐈‍⬛
+
  <img width="2048" height="122" alt="image" src="https://github.com/user-attachments/assets/dddb1b05-ea3a-4775-9255-4f0245b70ecb" /> 
