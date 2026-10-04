@@ -12,7 +12,7 @@ c+h friendly dont be shy ok
  <br>
 <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/0ebfeaa2-5807-419b-9e84-b439f0dc9f58" /> <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/95e445ee-2afe-44e2-aa24-d49ccf6f7fdb" />
  <br>
-vballs
+im either drawing or playing phighting
   <br>
 placeholder
 <br>
