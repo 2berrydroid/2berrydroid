@@ -17,3 +17,4 @@ im either drawing or playing phighting
 placeholder
 <br>
 <img width="492" height="106" alt="image" src="https://github.com/user-attachments/assets/ec9b40a0-14d0-4d3f-bc2e-7ef6ea4cc98f" />
+ <img width="2048" height="122" alt="image" src="https://github.com/user-attachments/assets/dddb1b05-ea3a-4775-9255-4f0245b70ecb" /> 
