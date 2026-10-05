@@ -7,6 +7,7 @@
 <img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/fdf3a4e5-818f-4d41-a1e5-2687420c5643" />
  <br>
  minor, iwc if youre like 16 and older
+ <br>
  int if you like hypertana
  <br>
 c+h friendly dont be shy ok
